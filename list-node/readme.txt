@@ -1,1 +1,0 @@
-Remember this is a concept code. so there might be one or two error but the fundamental is correct. 
